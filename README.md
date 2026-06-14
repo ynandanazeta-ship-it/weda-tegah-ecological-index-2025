@@ -1,0 +1,1 @@
+# weda-tegah-ecological-index-2025
